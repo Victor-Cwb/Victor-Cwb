@@ -1,4 +1,4 @@
-Entusiasta da tecnologia apaixonado por desenvolvimento de software. Explorando o mundo da programação e sempre em busca de aprender e compartilhar conhecimento- 👋 Hi, I’m @Victor-Cwb
+Entusiasta da tecnologia apaixonad0 por desenvolvimento de software. Explorando o mundo da programação e sempre em busca de aprender e compartilhar conhecimento- 👋 Hi, I’m @Victor-Cwb
 
 
 <!---
